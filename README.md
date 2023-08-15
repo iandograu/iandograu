@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iandograu, estudo no Colégio Estadual do Paraná e tenho 15 anos.
+- 👀 I’m interested in ... fazer coco sem sujar a bunda
+- 🌱 I’m currently learning ... como fazer coco sem sujar a bunda
+- 💞️ I’m looking to collaborate on ... limpar a bunda
+- 📫 How to reach me ... Fale comigo no whatsapp: 41 992543941 
